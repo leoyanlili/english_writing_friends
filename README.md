@@ -1,2 +1,2 @@
-# Friends
-Telling story of Friends
+# Home
+
